@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jeanpaulleon
+- 👋 Hi, I’m Jeanpaul Leon
 - 📫 Connect with me on
     -  <a href="https://www.linkedin.com/in/jeanpaul912/">LinkedIn</a>
     -  <a href="https://www.tradingview.com/u/jeanpaul912/">TradingView</a>
